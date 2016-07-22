@@ -5,3 +5,5 @@ sike
 :) gl this is a little step in ur life^^
 
 U'll say "thank's" later
+
+[*VK*](https://vk.com/id33435769).
